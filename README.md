@@ -1,0 +1,1 @@
+Tugas2CNN-230441100152_NagitaBrendaSilvia & 230441100142_DioRamadhaniPP
